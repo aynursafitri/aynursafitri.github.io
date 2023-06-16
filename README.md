@@ -1,0 +1,1 @@
+# aynursafitri.github.io
